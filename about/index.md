@@ -33,10 +33,3 @@ layout: page
 	May you stay forever young
 	Forever young, forever young
 	May you stay forever young.
-
-33是宇宙里最可爱的人。
-
-我喜欢33，33也喜欢我。
-
-
-
