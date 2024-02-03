@@ -4,7 +4,7 @@
 # ---------------------------------------------------------------
 
 # Site
-title: My Profile
+title: My Space
 subtitle:
 description: Graduate Student at USF. Major in computer science.
 author: Huimin
@@ -217,7 +217,8 @@ font:
 social:
   #LinkLabel: Link
     GitHub: https://github.com/Huimin22
-    School: https://www.usfca.edu/arts-sciences/programs/graduate/computer-science
+    School: https://www.usfca.edu/
+    
 
 
 # Social Links Icons
