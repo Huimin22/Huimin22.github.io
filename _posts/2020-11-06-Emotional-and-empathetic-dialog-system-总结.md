@@ -1,6 +1,6 @@
 ---
 published: true
-title: Emotional and empathetic dialog system 总结
+title: Emotional and empathetic dialog system
 category: Dialogue System
 tags: 
   - DL
@@ -9,11 +9,11 @@ tags:
 layout: post
 ---
 
-(√）为已读；
+(√）Read
 
-⭐为重要；
+⭐ Important
 
-🌙为值得一看。
+🌙 Worth
 
 # Emotional
 
@@ -74,11 +74,6 @@ A survey on empathetic dialogue systems (Information Fusion 2020)
 Empathetic Dialogue Generation via Knowledge Enhancing and Emotion Dependency Modeling (arxiv 2020)
 
 EmpTransfo: A Multi-head Transformer Architecture for Creating Empathetic Dialog Systems (arxiv 2020)
-
-
-
-
-
 
 
 
