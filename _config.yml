@@ -6,7 +6,7 @@
 # Site
 title: My Space
 subtitle:
-description: Graduate Student at USF. Major in computer science.
+description:  Train hard. Live a simple life.
 author: Huimin
 # Support language: de, en, fr-FR, id, ja, ko, pt-BR, pt, ru, zh-Hans, zh-hk, zh-tw
 language: en
@@ -217,7 +217,7 @@ font:
 social:
   #LinkLabel: Link
     GitHub: https://github.com/Huimin22
-    School: https://www.usfca.edu/
+    School: 
     
 
 
