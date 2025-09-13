@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.31 Day7: 自驾横跨美国｜Chicago To Pittsburgh
+title: 5.31 Day7:自驾横跨美国｜Chicago To Pittsburgh
 category: Travel
 description: 河流与钢铁之城
 tags: 

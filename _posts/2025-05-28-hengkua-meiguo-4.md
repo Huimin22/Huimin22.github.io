@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.28 Day4: 自驾横跨美国｜Denver To Grand Island
+title: 5.28 Day4:自驾横跨美国｜Denver To Grand Island
 category: Travel
 description: 高山与大平原的交替
 tags: 

@@ -1,6 +1,6 @@
 ---
 published: true
-title: 6.01 Day8: 自驾横跨美国｜Pittsburgh To Washington DC
+title: 6.01 Day8:自驾横跨美国｜Pittsburgh To Washington DC
 category: Travel
 description: 历史与政治的中心
 tags: 

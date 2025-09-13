@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.27 Day3: 自驾横跨美国｜Moab To Denver
+title: 5.27 Day3:自驾横跨美国｜Moab To Denver
 category: Travel
 description: 峡谷与落基山脉
 tags: 

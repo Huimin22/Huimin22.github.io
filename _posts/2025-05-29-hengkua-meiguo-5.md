@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.29 Day5: 自驾横跨美国｜Grand Island To Des Moines
+title: 5.29 Day5:自驾横跨美国｜Grand Island To Des Moines
 category: Travel
 description: 中西部农田风光 
 tags: 
