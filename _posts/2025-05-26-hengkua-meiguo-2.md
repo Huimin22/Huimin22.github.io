@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.26 Day2: 自驾横跨美国｜St.George To Moab
+title: 5.26 Day2:自驾横跨美国｜St.George To Moab
 category: Travel
 description: 拱门国家公园探秘
 tags: 

@@ -1,6 +1,6 @@
 ---
 published: true
-title: 5.25 Day1: 自驾横跨美国｜LA To St.George
+title: 5.25 Day1:自驾横跨美国｜LA To St.George
 category: Travel
 description: 初遇峡谷风光 
 tags: 
