@@ -32,5 +32,5 @@ layout: post
 
 <img src="https://Huimin22.github.io/assets/images/2025-08-01-yihao-gonglu/IMG_5805.JPG" alt="Carmel" width="80%">
 
-<img src="https://Huimin22.github.io/assets/images/2025-08-01-yihao-gonglu/IMG_5707.JPG" alt="Big Sur" width="80%">
+<img src="https://Huimin22.github.io/assets/images/2025-08-01-yihao-gonglu/IMG_5807.JPG" alt="Big Sur" width="80%">
 <p align="center">Bixby Bridge</p>
