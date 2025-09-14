@@ -15,42 +15,77 @@ Las Vegas的游客区域还是一如既往的热闹拥挤，strip大道上鳞次
 
 短暂停留LV，我们驱车前往Utah，Utah有着非常独特的峡谷地貌，还没到目的城市，我们就被路上的风景深深震撼到了。公路就位于连绵不绝的峡谷地带之中，我们的车不断在峡谷间穿行，驶入这一个跟着驶出，再进去下一个，走出去后远处还有更多的峡谷。峡谷的岩石有的是砖红色，有人评价犹他的地貌特征像来到了火星，这个比喻足够确切，这里如果没有公路交通，确实让人觉得来到了外星球。巨大的红色峡谷在眼前应接不暇，特别是它并不像普通的山脉那样有丰富的植被覆盖，大块的岩石裸露在表面，我们得以窥见峡谷之中岩石的层次。手机的摄像功能无法拍摄出人置身于大自然之中的震撼，当你身处如此广袤无边的谷底，望着高出你千万倍的山石，你会感慨人类是如此渺小，大自然又是如何鬼斧神工地雕刻出这奇迹般的世界。
 
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6501.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6502.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6503.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6504.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6510.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6532.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6542.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6543.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6544.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6548.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6549.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6553.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6569.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6570.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6572.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6578.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6583.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6597.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6598.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6600.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6611.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6612.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6614.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6615.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6617.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6640.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6644.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6680.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6712.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6714.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6751.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6754.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6847.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6851.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6887.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6890.jpg" width="80%">
+
 <img src="https://Huimin22.github.io/assets/images/2025-05-25-hengkua-meiguo-1/IMG_6898.jpg" width="80%">
-
-
